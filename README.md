@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @snewook
 - 👀 I’m interested in games
-- 🌱 I’m currently learning on school
+- 🌱 I’m currently learning on college
 - 💞️ I’m looking to collaborate on creating games
 - 📫 How to reach me: tg @snowy_snewok; vk @snowy_snewok
 
